@@ -1,4 +1,4 @@
-
+Canva for macOS professional Script: stock-assets-integration & version-history offers the most advanced Canva for macOS script, with stock-assets-integration and version-history.
 
 
 
